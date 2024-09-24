@@ -1,1 +1,1 @@
-![Alt text](GSLSAMPPoster2024.pptx.png)
+![Alt text](GSLSAMPPoster2024.pptx2.png)
